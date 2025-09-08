@@ -19,6 +19,8 @@ I am Rikka, the founder of Yummysheep Studio, active on the net with the name "s
 [Normal Email](mailto:yummyysheep@gmail.com)
 [Darkweb Email](mailto:yummysheep@protonmail.com)
 [Discord](discord.gg/e7H9WJHBzC)
+[Website](www.yummysheep.com)
+
 <br>I will get back to you as soon as possible due to the different time zones
 > [!NOTE]  
 > Only responsible for work requests 
